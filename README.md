@@ -4,4 +4,5 @@
 <p align="center"> Nic / Dizzy / Kat ♡ they/it </p>
 <p align="center"> whisper to interact! i'm usually offtab </p>
 <p align="center"> since im usually on as my springs selfship pony > no I dont want William. </p>
+<p align="center"> check out my <a href="https://salvagedmemorial.tumblr.com/">askblog</a> :D </p>
 <p align="center"> <img width="300" src="https://cdn.discordapp.com/attachments/960062491138883614/1170502293209227334/kitty_banner.gif?ex=65594635&is=6546d135&hm=44b8bf77fab8b9b5ce1c52a14ebec8c57bc5be808451e679334b230a313dd63e&"> </p>
