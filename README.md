@@ -6,3 +6,4 @@
 <p align="center"> since im usually on as my springs selfship pony > no I dont want William. </p>
 <p align="center"> check out my <a href="https://salvagedmemorial.tumblr.com/">askblog</a> :D </p>
 <p align="center"> <img width="300" src="https://cdn.discordapp.com/attachments/960062491138883614/1170502293209227334/kitty_banner.gif?ex=65594635&is=6546d135&hm=44b8bf77fab8b9b5ce1c52a14ebec8c57bc5be808451e679334b230a313dd63e&"> </p>
+<p align="center"> <img width="600" src="https://64.media.tumblr.com/584a851f049327db7a1286dc9bfe32e8/4c240f87beecd706-19/s1280x1920/717fd06574812fafd5a9b687eb6e6d8317dbfae7.png"> </p>
