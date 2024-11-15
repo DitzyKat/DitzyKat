@@ -4,6 +4,7 @@
 <p align="center"> <img width="600" src="https://64.media.tumblr.com/f0e725e1f06c7ee67514e0a789ead7ca/cb7d539e66f4e955-ae/s1280x1920/6f249e5c439b60f7f1c4b959e89ca41d74ed365f.gif"> </p>
 <p align="center"> Nic / Dizzy / Kat ♡ they/it </p>
 <p align="center"> whisper to interact! i'm usually offtab </p>
+<p align="center"> If a pony doesn't have my github/patreon linked, it isn't me! I do not appreciate being copied or heavily referenced. </p>
 <p align="center"> If I'm online, im almost always on the uppermost bench of the pokemon area; if not, im under the tree right next to it! </p>
 <p align="center"> Lately I've also been in the Homestuck area or by the cafe (where is the sonic area please tell me 🥹) </p>
 <p align="center"> ALSO if you're a kin/fictive of one of my f/os, I'm not a weirdo I wont treat you like we're dating or anything like that I promise </p>
