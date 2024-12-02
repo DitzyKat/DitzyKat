@@ -12,6 +12,6 @@
 
                                                                   !! PLEASE READ !!
 
-<p align="center"> My girlfriend <a href="https://github.com/n1ghtmareeyes">n1ghtmareeyes</a> and I are currently being confused for (I think) 2 other people who apparently said some pretty fucked up and ableist shit. That was not us, please double check before you harass us over nothing.
+<p align="center"> My girlfriend <a href="https://github.com/n1ghtmareeyes">n1ghtmareeyes</a> and I are currently being confused for (I think) 2 other people who apparently said some pretty gross and ableist things! That was not us, please double check before you harass us over nothing.
 If you do have a problem with us, please tell us! We won't know what we did wrong if you don't tell us :[ </p>
 
