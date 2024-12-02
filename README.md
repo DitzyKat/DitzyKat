@@ -10,7 +10,7 @@
 <p align="center"> ALSO if you're kin/fictive of one of my f/os, I'm not a weirdo I wont treat you like we're dating or anything like that I promise </p>
 <p align="center"> <img width="300" src="https://64.media.tumblr.com/7cb93d58642af749476adbc124e3178e/4c240f87beecd706-21/s1280x1920/318147396dba56b91a95d9a92193734aaf0e2202.gif"> </p>
 
-                                                                  !! PLEASE READ !!
+                                                              !! PLEASE READ !!
 
 <p align="center"> My girlfriend <a href="https://github.com/n1ghtmareeyes">n1ghtmareeyes</a> and I are currently being confused for (I think) 2 other people who apparently said some pretty gross and ableist things! That was not us, please double check before you harass us over nothing.
 If you do have a problem with us, please tell us! We won't know what we did wrong if you don't tell us :[ </p>
