@@ -15,5 +15,5 @@
 <p align="center"> My girlfriend <a href="https://github.com/n1ghtmareeyes">n1ghtmareeyes</a> and I are currently being confused for (I think) 2 other people who apparently said some pretty gross and ableist things! That was not us, please double check before you harass us over nothing.
 If you do have a problem with us, please tell us! We won't know what we did wrong if you don't tell us :[ </p>
 
-<p>If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.</p>
+<p align="center">If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.</p>
 
