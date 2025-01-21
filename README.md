@@ -8,6 +8,7 @@
 <p align="center"> If a pony doesn't have my github/patreon linked, it isn't me! I do not appreciate being copied or heavily referenced. </p>
 <p align="center"> Lately I've been by the cafe / sonic area </p>
 <p align="center"> ALSO if you're kin/fictive of one of my f/os, I'm not a weirdo I wont treat you like we're dating or anything like that I promise </p>
+<p align="center"> I have memory loss, sorry if I forget anything important! </p>
 <p align="center"> <img width="300" src="https://64.media.tumblr.com/7cb93d58642af749476adbc124e3178e/4c240f87beecd706-21/s1280x1920/318147396dba56b91a95d9a92193734aaf0e2202.gif"> </p>
 
                                                               !! PLEASE READ !!
@@ -16,4 +17,6 @@
 If you do have a problem with us, please tell us! We won't know what we did wrong if you don't tell us :[ </p>
 
 <p align="center">If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.</p>
+
+<p align="center">I do not harass people. If you bother me I'll likely just mute you, or hide if its severe.</p>
 
