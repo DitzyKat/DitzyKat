@@ -9,6 +9,7 @@
 <p align="center"> Lately I've been by the cafe / sonic area </p>
 <p align="center"> ALSO if you're kin/fictive of one of my f/os, I'm not a weirdo I wont treat you like we're dating or anything like that I promise </p>
 <p align="center"> I have memory loss, sorry if I forget anything important! </p>
+<p align="center"> If you make 'weak' or 'thwomp' jokes towards my Infinite pony I'm not gonna like you. It's unfunny + the thwomp thing isn't even canon. You aren't the first person to say it and it's annoying.</p>
 <p align="center"> <img width="300" src="https://64.media.tumblr.com/7cb93d58642af749476adbc124e3178e/4c240f87beecd706-21/s1280x1920/318147396dba56b91a95d9a92193734aaf0e2202.gif"> </p>
 
                                                               !! PLEASE READ !!
