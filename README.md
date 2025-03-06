@@ -1,5 +1,5 @@
 <p align="center"> <img width="600" src="https://64.media.tumblr.com/584a851f049327db7a1286dc9bfe32e8/4c240f87beecd706-19/s1280x1920/717fd06574812fafd5a9b687eb6e6d8317dbfae7.png"> </p>
-<p align="center"> Nic / Dizzy / Kat / Rook / Pony Names ♡ they/it </p>
+<p align="center"> Nic / Rookie / Dizzy / Kat / Pony Names ♡ they/it </p>
 <p align="center"> whisper to interact! i'm usually offtab </p>
 <p align="center"> Don't be afraid to interact with me, I enjoy talking to new people <i>(I'm just very shy + anxious)</i>. </p>
 <p align="center"> I idle often and rarely speak unless spoken to. I promise I'm nice :] </p>
