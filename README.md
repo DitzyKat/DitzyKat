@@ -1,8 +1,8 @@
 <p align="center"> <img width="600" src="https://64.media.tumblr.com/584a851f049327db7a1286dc9bfe32e8/4c240f87beecd706-19/s1280x1920/717fd06574812fafd5a9b687eb6e6d8317dbfae7.png"> </p>
 <p align="center"> Nic / Rookie / Dizzy / Kat / Pony Names ♡ they/it </p>
 <p align="center"> whisper to interact! i'm usually offtab </p>
-<p align="center"> Don't be afraid to interact with me, I enjoy talking to new people <i>(I'm just very shy + anxious)</i>. </p>
 <p align="center"> I idle often and rarely speak unless spoken to. I promise I'm nice :] </p>
+<p align="center"> Don't be afraid to interact with me, I enjoy talking to new people <i>(I'm just very shy + anxious)</i>. </p>
 <p align="center"> https://dizzykat.straw.page/ • https://starsontheshore.neocities.org/ </p>
 <p align="center"> <img width="600" src="https://64.media.tumblr.com/f0e725e1f06c7ee67514e0a789ead7ca/cb7d539e66f4e955-ae/s1280x1920/6f249e5c439b60f7f1c4b959e89ca41d74ed365f.gif"> </p>
 <p align="center"><sup>(this is not springtrap and deliah; that is my sona and I look like that in real life. thanks)</sup></p>
@@ -10,7 +10,7 @@
 <p align="center"> Lately I've been by the cafe / sonic area </p>
 <p align="center"> I have memory loss, sorry if I forget anything important! </p>
 <p align="center"> If you're kin/fictive of one of my f/os, I'm not a weirdo I wont treat you like we're dating or anything like that I promise </p>
-<p align="center"><sub>If you make 'weak' or 'thwomp' jokes towards my Infinite pony I'm not gonna like you. It's unfunny + the thwomp thing isn't even canon. You aren't the first person to say it and it's annoying.</sub></p>
+<p align="center"><sub>If you make 'weak' or 'thwomp' jokes towards my Infinite pony I'm not gonna like you. It's unfunny + the thwomp thing isn't canon. You aren't the first person to say it and it's annoying.</sub></p>
 <p align="center"> <img width="300" src="https://64.media.tumblr.com/7cb93d58642af749476adbc124e3178e/4c240f87beecd706-21/s1280x1920/318147396dba56b91a95d9a92193734aaf0e2202.gif"> </p>
 
 
