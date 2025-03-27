@@ -18,6 +18,8 @@
 
 <p align="center"> If me or my girlfriend <a href="https://github.com/scourgesisters">scourgesisters</a> are sitting on someone, we probably don't know, just whisper us and we'll move over! We have a lot of people in the sonic area hidden atm, because they kept covering me and refusing to tell me what I'd done to upset them. I've also been told that they're lying about me, so if someone tells you something about me, please take it with a grain of salt. I'm happy to clear up any misconceptions there might be, as I'm very transparent about my interestes and boundaries. (they are both easily found on my carrd). I don't want to cause any issues or drama, I just want to clear this up.</p>
 
+<p align="center">Since I'm in a doc now, here is my <a href="https://spamaltpage.straw.page/">RESPONSE</a> to said doc, so I can hopefully clear up everything.</p>
+
 <p p align="center">If you do have a problem with us, please tell us! We won't know what we did wrong if you don't tell us. We're all grown adults here, let's act like it. </p>
 
 <p align="center">If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.</p>
